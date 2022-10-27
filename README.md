@@ -1,1 +1,1 @@
-# Os_final1 BUNZAI
+# Os_final1 นายบัณทัต คงสมบัติ 6304101342 sec.2
